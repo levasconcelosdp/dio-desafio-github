@@ -10,7 +10,7 @@
 
 O modelo mais vendido no Brasil,também é o mais roubado no estado.
 
-**2º Honda CG Titan 150cc **
+**2º Honda CG Titan 150cc**
 
 Um fator determinante para o número de registros dos roubos do modelo de 150 cilindradas da Honda é a quantidade de motos vendidas do mesmo tipo. Seguindo a mesma linha do primeiro lugar do ranking das motos mais roubadas, quanto mais veículos vendidos do mesmo tipo, maior serão as possibilidades dele ser roubado.
 
